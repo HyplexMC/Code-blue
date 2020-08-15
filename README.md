@@ -1,0 +1,2 @@
+# Hyplex-MC
+We’re a community of players getting the best out of survival multiplayer and having fun making friendships. Builders and redstone-technicians collaborate to create to your hearts best content. We are heavily inspired by Hermitcraft so we do have some similarities to them but lots of differences that make us unique. We tend to keep the player count low to more focus on a community rather than a network.
